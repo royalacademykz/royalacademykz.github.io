@@ -1,1 +1,1 @@
-# royalacademykz.github.io
+# royalacademykz.github.io or royalacademy.kz
